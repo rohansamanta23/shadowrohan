@@ -1,6 +1,7 @@
 - Hi myself Rohan, a coder from Tamluk🏠. Currently I'm in college (JIS University). OwO
 - I’m interested in Movies🍿, Web-series & Anime🎞️ but when I aslo got bored from those too then sometimes I do coding n stuff 😉
-- I’m currently learning react & java😶‍🌫️. Both are fun to learn, but I'm just not into learning 🤷‍♂️
+- If you ever feel like swapping coding tips or discussing the latest binge-worthy show, count me in! 🍿
+- Currently mastering React and Java? Talk about a dynamic duo! 💻
 - 💞️ I’m looking to collaborate on... 🙁 nah! forgot it.
 - 📫 If... I don't know why. BUT If you want to reach me, here's my gmail 'rohansamanta45@gmail.com' && a Instergram Handle couse... why not 😉 'https://www.instagram.com/rohan_samanta_23/'.
 - ⚡ Fun fact: I'm a programmer!(isn't that shocking🤯).
