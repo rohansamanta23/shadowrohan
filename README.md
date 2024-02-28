@@ -1,4 +1,4 @@
-- Hi myself Rohan, a coder from Tamluk🏠. Currently I'm in collage (JIS University). OwO
+- Hi myself Rohan, a coder from Tamluk🏠. Currently I'm in college (JIS University). OwO
 - I’m interested in Movies🍿, Web-series & Anime🎞️ aslo but when I aslo got bored from those too then sometimes I do code n stuff 😉
 - I’m currently learning react & java😶‍🌫️. Both are fun to learn, but I'm just not into learning 🤷‍♂️
 - 💞️ I’m looking to collaborate on... 🙁 nah! forgot it.
